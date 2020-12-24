@@ -14,7 +14,8 @@ My most important goal is to use all of my ability to become a professional netw
 <p style="text-align:center;">
 Plan
 <br>
-I am currently studying for a bachelors degree at payame Noor university. 
-. My plan for the future is employment in my field of study
+I am currently studying for a bachelors degree at payame Noor university.
+  <br>
+ My plan for the future is employment in my field of study
 
 <p style="text-align:center;">
