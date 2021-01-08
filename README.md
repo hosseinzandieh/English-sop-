@@ -7,15 +7,6 @@ hosseinzandieh
 Computer engineering major
 </pre>
 <p style="text-align:center;">
-Purpose and motivation 
-<br>
-
-My most important goal is to use all of my ability to become a professional network expert. 
-<p style="text-align:center;">
-Plan
-<br>
-I am currently studying for a bachelors degree at payame Noor university.
-  <br>
- My plan for the future is employment in my field of study
+Due to my interest in computers and working in the field of IT, I chose this field. The reason for choosing Payame Noor University was the reasonable cost and travel, as well as the lack of compulsory classes at this university. I want to study professionally in this university. Networking, internet and cyberspace are my specialties. I want to go to the army first and then continue my studies. I'm interested. I have a passion for basketball and my friend should be informed about the university.
 
 <p style="text-align:center;">
